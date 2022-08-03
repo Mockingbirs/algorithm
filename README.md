@@ -1,3 +1,3 @@
 # algorithm
 
-notion  https://www.notion.so/97c37d74b8de43abb9e93376a711e4c3?v=d8c370a61227425884b2441c3f506c39<Br><br>
+notion https://www.notion.so/f581671e455d4742b81ad707036a896d?v=750be53f09a14973878607b9cc3bc9f3
